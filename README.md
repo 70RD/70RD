@@ -3,7 +3,7 @@
 **Byi.**
 I will hide freely. I'm a Tord fictionkin and dislike when people potray him weirdly. I do make harsh and or offensive jokes, hide me if you're uncomfortable. I will not use tone tags ever. 
 
-**Dni.** "Silly car :3 >_<" ppl, "IRLS", anti-recoveries & mental illnesss posers, advid trendhoppers
+**Dni.** -14, 19+, "Silly car :3 >_<" ppl, "IRLS", anti-recoveries & mental illnesss posers, advid trendhoppers
 <!--
 **70RD/70RD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
