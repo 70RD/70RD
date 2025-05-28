@@ -1,5 +1,4 @@
-## Hi there 👋
-
+![](https://media.discordapp.net/attachments/906579001164828725/1377108755967381514/IMG_6755-removebg-preview.png?ex=6837c3f8&is=68367278&hm=998322054df61e1b3c22a5eab7d1fd4d522a7a29142c4bd37db574e63484abb2&=&format=webp&quality=lossless)
 <!--
 **70RD/70RD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
