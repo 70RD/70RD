@@ -4,7 +4,7 @@
 
 spam follow account
 
-follow my main @ecthoz
+follow my main [@ecthoz](https://github.com/ecthoz)
 
 &nbsp;<div align="center">
  
